@@ -1,0 +1,2 @@
+# Karakterin Ayrılması
+

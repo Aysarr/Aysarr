@@ -1,0 +1,2 @@
+# Karar Vermek
+

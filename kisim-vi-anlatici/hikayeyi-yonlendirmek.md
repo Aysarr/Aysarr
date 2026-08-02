@@ -1,0 +1,2 @@
+# Hikâyeyi Yönlendirmek
+
